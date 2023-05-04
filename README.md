@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-# 🌱 Jiayue Wong
+# ✨ Jiayue Wong
 
 **`Aspiring (Developer/Digital 3D artist)`**
 
