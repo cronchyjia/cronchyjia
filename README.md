@@ -15,9 +15,9 @@ Here are some ideas to get you started:
 
 # ✨ Jiayue Wong
 
-**`Aspiring (Developer/Designer/Researcher)`**
+**`Aspiring to be their very best <3`**
 
-I'm a university student studying computer science who is also passionate about design and art. I seek to hopefully combine my technical skills with my creative abilities to explore new frontiers, as I've always been fascinated by technology and its endless possibilities. As a student I'm constantly challenged to think outside the box, find new solutions to complex problems, and apply my technical knowledge in innovative ways. My experience with artisic mediums has helped me to think more creatively, visualize problems in new ways, and develop a better understanding of how technology can be used to create beautiful and functional designs. In the future I hope to use my skills to push the boundaries of what is possible. I believe that the combination of technical expertise and creative vision is essential in today's fast-paced and ever-evolving digital landscape; I am excited to be at the forefront of it.
+I'm a university student studying computer science who is also passionate about how people interact with technology, design, and art. I seek to hopefully combine my technical skills with my creative abilities to explore new frontiers, as I've always been fascinated by technology and its endless possibilities. As a student I'm constantly challenged to think outside the box, find new solutions to complex problems, and apply my technical knowledge in innovative ways. My experience with artisic mediums has helped me to think more creatively, visualize problems in new ways, and develop a better understanding of how technology can be used to create beautiful and functional designs. In the future I hope to use my skills to push the boundaries of what is possible. I believe that the combination of technical expertise and creative vision is essential in today's fast-paced and ever-evolving digital landscape; I am excited to be at the forefront of it.
 
 ---
 
